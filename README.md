@@ -1,3 +1,3 @@
 ## Randy/Tippy
 
-(https://www.freepnglogos.com/uploads/android-logo-png/android-logo-0.png)
+[Android](https://www.freepnglogos.com/uploads/android-logo-png/android-logo-0.png)
